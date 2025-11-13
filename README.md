@@ -1,1 +1,1 @@
-"# philosophy" 
+Make it effortless
